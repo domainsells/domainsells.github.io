@@ -1,1 +1,0 @@
-# jordantugrul.github.io
